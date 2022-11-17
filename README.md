@@ -1,0 +1,1 @@
+# idkmynicknamefr.github.io
