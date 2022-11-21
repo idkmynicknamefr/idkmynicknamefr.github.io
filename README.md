@@ -9,7 +9,7 @@ https://youtu.be/uQFVqltOXRg
 
 https://youtu.be/1jbp5mb6AUU
 
-socials 3>
+socials :D
 
 [ig acc](https://www.instagram.com/lindsaytacordaa/?hl=en)
 
