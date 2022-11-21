@@ -1,5 +1,10 @@
 # idkmynicknamefr.github.io
-hello!
+hello! I am Lindsay, a student from Ateneo de Naga University. I am 14 years old. I am a Kpop fan and likes to listen to music a lot. One of my favorite sports is badminton. 
+
+fav <3
+
+https://youtu.be/pZ31pyTZdh0
+https://youtu.be/uQFVqltOXRg
 
 socials 3>
 
