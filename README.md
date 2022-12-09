@@ -19,7 +19,7 @@ socials :D
 ### My Gmail acc >litacorda@gbox.adnu.edu.ph
 
 
-I am Lindsay R. Tacorda, 14 years old, studying at Ateneo de Naga Univiersity.
+I am Lindsay R. Tacorda, 14 years old, studying at Ateneo de Naga University.
 
 I love to play badminton, I used to play with my neighbors before but now, we're not in the same address anymore.
 
