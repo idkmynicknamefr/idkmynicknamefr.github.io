@@ -5,12 +5,9 @@ favs <3
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/pZ31pyTZdh0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-https://youtu.be/pZ31pyTZdh0
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hWOB5QYcmh0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-https://youtu.be/hWOB5QYcmh0
-
-https://youtu.be/1jbp5mb6AUU
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1jbp5mb6AUU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 socials :D
 
 [ig acc](https://www.instagram.com/lindsaytacordaa/?hl=en)
